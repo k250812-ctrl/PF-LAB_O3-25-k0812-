@@ -1,0 +1,6 @@
+# BIO
+*SYED MAQBOOL AHMED*
+### DEGREE NAME
+**BS CS**
+#### HOBBY
+**CRICKET**
